@@ -1,1 +1,0 @@
-# esgi-cloud-exam-3-47798
